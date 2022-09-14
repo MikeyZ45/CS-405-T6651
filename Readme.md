@@ -8,5 +8,5 @@ Coding ZIP files
 
 Portfolio journal reflection (Word document)
 
-Theank you,
+Thank you,
 Michael
